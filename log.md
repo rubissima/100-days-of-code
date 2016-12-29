@@ -17,7 +17,7 @@
 **Link(s) to work**: 
 
 
-### Day 1: June 27, Monday
+### Day:
 
 **Today's Progress**: 
 
